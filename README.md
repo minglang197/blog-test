@@ -21,3 +21,10 @@
 
 [点击](https://github.com/minglang197) 进入我的github，欢迎 star 我
 
+喜欢的歌手是宋胖子
+
+![宋冬野](1.jpg)
+
+喜欢他的歌：郭源潮
+
+![歌曲](2.jpg)
